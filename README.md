@@ -1,1 +1,1 @@
-# mind_reader
+# FUNNY MATH TRICK FOR BIGGENERS.
